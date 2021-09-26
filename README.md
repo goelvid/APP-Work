@@ -1,2 +1,20 @@
 # APP-Work
+![1](https://user-images.githubusercontent.com/89974593/134811890-5e6e4d61-7a68-43a8-8c40-57c30657a61b.JPG)
 
+![2](https://user-images.githubusercontent.com/89974593/134811776-cfa43bce-0aef-446f-ac7e-bf6b784041a5.JPG)
+![3](https://user-images.githubusercontent.com/89974593/134811779-e7911673-cc1e-44b4-ab83-a90ee8d818a3.JPG)
+)
+![4](https://user-images.githubusercontent.com/89974593/134811781-08ad2854-c360-4127-a435-f1d7c06d1e5b.JPG)
+![5](https://user-images.githubusercontent.com/89974593/134811786-6d066d51-bb71-4167-b0ac-9715978493cc.JPG)
+![6](https://user-images.githubusercontent.com/89974593/134811794-da3a8a9d-9784-4b40-829b-04eb81ef00a7.JPG)
+![7](https://user-images.githubusercontent.com/89974593/134811820-622605a6-923d-4ff3-ad2f-5c5cdd1bdc24.JPG)
+![8](https://user-images.githubusercontent.com/89974593/134811832-a92c0e0f-39d3-415b-bc8f-30f2fdf15caf.JPG)
+![9](https://user-images.githubusercontent.com/89974593/134811838-c01fb3cb-0496-4b13-83ee-fac378c11fdf.JPG)
+![10](https://user-images.githubusercontent.com/89974593/134811848-0711e639-42dd-4a25-af1e-1505f25b3160.JPG)
+![11](https://user-images.githubusercontent.com/89974593/134811852-81128143-9251-4898-b4ad-5973041f3b2e.JPG)
+![12](https://user-images.githubusercontent.com/89974593/134811857-bd3f76dc-2b70-43d9-ad97-62a307407fa1.JPG)
+![13](https://user-images.githubusercontent.com/89974593/134811864-669e1a11-d18e-4846-a970-81ece67c9458.JPG)
+![14](https://user-images.githubusercontent.com/89974593/134811868-867c591d-c1fb-4f94-8772-281376c085a5.JPG)
+![15](https://user-images.githubusercontent.com/89974593/134811874-5f981877-6241-40d9-8978-6633e119c2ea.JPG)
+
+![16](https://user-images.githubusercontent.com/89974593/134811881-d949b1a7-6e84-4991-9049-58356bc50428.JPG)
